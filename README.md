@@ -1,1 +1,1 @@
-Fully detailed information on https://en.wikipedia.org/wiki/Rock_paper_scissors
+Fully detailed information on https://en.wikipedia.org/wiki/Rock_paper_scissors, https://hobbylark.com/party-games/Rock-Paper-Scissors, or https://www.slideshare.net/slideshow/rock-paper-scissors-3810847/3810847
